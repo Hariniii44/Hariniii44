@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Harini
 - 👀 I’m interested in everything
-- 🌱 I’m currently trying to learning everything
+- 🌱 I’m currently trying to learn everything
 - 📫 Reach me @wathmademel@gmail.com
 - 😄 Pronouns: she/her
 
